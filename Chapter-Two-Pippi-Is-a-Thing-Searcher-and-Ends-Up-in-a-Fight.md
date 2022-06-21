@@ -103,5 +103,42 @@ But before she had even finished speaking, Pippi gave out another roar and trium
 
 "This seems to be my lucky day," she said. "Such a sweet, sweet little spool for blowing soap bubbles, or you could put it on a string and wear it like a necklace! I'm going to go home and do that right now."
 
+At that very moment the gate of a nearby house flew open and a boy came rushing out. He looked scared, which wasn't so strange, because right on his heels were five other boys. They soon caught him and then shoved him against a fence, where they all attacked him. All five of them started hitting and punching him. He began to cry, and held up his arms to shield his face.
+
+"Go to it, boys," yelled the biggest and strongest of the lot. "That way he'll never dare show his face on this street again!"
+
+"Oh," said Annika. "That's Willy they're beating up. How can they be so mean!"
+
+"It's that horrible Bengt. He's always fighting," said Tommy. "But five against one—what cowards!"
+
+Pippi went over to the boys and tapped Bengt on the back with her finger.
+
+"Hey there," she said. "Are you planning to make mincemeat out of little Willy, since all five of you are going at him at once?"
+
+Bengt turned around and caught sight of a girl he had never seen before. A complete stranger who dared to poke him. At first he merely stared at her, out of sheer astonishment, but then a big sneer appeared on his face.
+
+"Boys," he said. "Boys! Forget about Willy and take a look at this girl. What a weird little girl she is!"
+
+He slapped his knees and started laughing. In a flash they were all crowding around Pippi, all except for Willy, who wiped away his tears and timidly went over to stand next to Tommy.
+
+"Look at that hair of hers! Bright as fire! And those shoes," Bengt went on. "Could I borrow one of them? I really want to go out rowing, but I don't have a boat."
+
+Then he grabbed one of Pippi's braids, but dropped it instantly and said, "Ow, I burned myself!"
+
+And then all five of the boys who were standing around Pippi started jumping and shouting, "Flare- hair, flare-hair!"
+
+Pippi stood in the middle of the circle and smiled in a friendly way. Bengt was hoping that she would get mad or start to cry. At the very least she should look scared. But when nothing else seemed to work, he gave her a shove.
+
+ "I don't think you have a very nice way of treating ladies," said Pippi. And then she lifted him up in her strong arms, high up in the air. She carried him over to a birch tree that stood nearby and slung him over a branch. Then she picked up the second boy and hung him over another branch. And she took the next one and set him on top of the gatepost outside a house. The next one she tossed over a fence so that he ended up sitting in a flowerbed in a nearby garden. And the last of the bullies she put in a tiny little toy wagon that was standing on the road. Then Pippi and Tommy and Annika and Willy all stood there for a moment, looking at the boys, who were speechless with surprise.
+
+ Pippi said, "What cowards you are! It takes all five of you to attack one boy. How cowardly. And then you start shoving around a defenseless little girl too. That's really awful!"
+
+ To Tommy and Annika she said, "Come on, let's go home." And to Willy she said, "Just come and tell me if they ever try to beat you up again
+
+To Bengt, who was perched up in the tree and didn't dare move, she said, "If you have anything else to say about my hair or my shoes, it'd be best if you told me now, before I go home."
+
+But Bengt had nothing more to say about Pippi's shoes, or about her hair either. Then Pippi picked up the can in one hand and the spool in the other and went on her way, followed bv Tommv and Annika.
+
+When they reached Pippi's garden, Pippi said, "Oh dear, how annoying! Here I've found two such fine things, and you've found nothing. You'll have to search a little harder. Tommy, why don't you look inside that old tree? Old trees are some of the best places for a thing-Searcher to look."
 
 
