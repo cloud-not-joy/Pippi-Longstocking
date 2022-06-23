@@ -141,4 +141,39 @@ But Bengt had nothing more to say about Pippi's shoes, or about her hair either.
 
 When they reached Pippi's garden, Pippi said, "Oh dear, how annoying! Here I've found two such fine things, and you've found nothing. You'll have to search a little harder. Tommy, why don't you look inside that old tree? Old trees are some of the best places for a thing-Searcher to look."
 
+Tommy said that he didn't think he and Annika were ever going to find anything, but to please Pippi he stuck his hand into a hollow in the tree trunk.
+
+"Wait a minute," he said in astonishment, and pulled out his hand. And in it he was holding a truly splendid notebook with a leather cover. In a special holder was a little silver pen.
+
+"Now that's really strange," said Tommy.
+
+"You see?" said Pippi. "There's nothing as great as being a thing-Searcher. It's odd that more people don't take up the profession. They all want to be carpenters and shoemakers and chimneysweeps and stuff like that, but thing-Searchers—no thank you, that's not good enough for them!"
+
+And then she looked at Annika.
+
+"Why don't you go and feel around inside that old stump? There are almost always things to be found inside old stumps."
+
+Annika stuck her hand inside, and almost at once she found a red coral necklace. Then she and Tommy just stood there gaping for a long time, they were so surprised. And they thought that from now on they were going to be thing-searchers every single day.
+
+Pippi had been up half the night playing catch, and now she suddenly felt sleepy.
+
+"I think I'd better go and lie down for a while," she said. "Why don't you come along and tuck me in?"
+
+When Pippi sat down on the edge of her bed and took off her shoes, she thought for a moment and then said, "That Bengt said he was going out rowing. Phooey!" She snickered scornfully. "I'll teach him to row, yes I will! Just wait until next time!"
+
+"Tell me, Pippi," said Tommy in a respectful tone of voice, "why do you have such big shoes?"
+
+"So I can wiggle my toes, of course," she replied. Then she lay down to sleep. She always slept with her feet on the pillow and her head under the covers.
+
+"They sleep like this in Guatemala," she assured them. "It's the only proper way to sleep. And this way I can wiggle my toes while I'm sleeping too.
+
+"Can you fall asleep without a lullaby?" she went on. "I always have to sing to myself for a while, otherwise I can't sleep a wink all night."
+
+Tommy and Annika listened to the humming sound coming from under the covers. Pippi was singing herself to sleep. Carefully and quietly they tiptoed out of the room so as not to disturb her. In the doorway they turned around and cast one last glance at the bed. They could see nothing but Pippi's feet, resting on the pillow. There she lay, briskly wiggling her toes.
+
+Then Tommy and Annika ran home. Annika was clutching her coral necklace tightly in her hand.
+
+"Well, that was really very odd," she said. "Tommy, you don't think that . . . you don't think that Pippi put these things there beforehand, do you?"
+
+"You never know," said Tommy. "You never really know anything when it comes to Pippi Longstocking."
 
