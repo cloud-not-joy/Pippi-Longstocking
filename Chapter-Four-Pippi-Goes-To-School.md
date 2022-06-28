@@ -94,3 +94,58 @@ The teacher took out the next picture, which showed a snake, and she told Pippi 
 "Once he wanted to have me for dessert, too, and he wrapped himself around me-crunch-but'I have sailed the seven seas, after all,' I told him, and bonked him on the head—bam!—and then he started hissing—SZSZSZSZSZSZ—so I hit him again bam!—and poof—he died. So that's the letter 's.' How amazing!"
 
 Pippi had to pause to catch her breath. And the teacher, who was beginning to think that Pippi was a troublesome and difficult child, suggested that the class should do some drawing instead. Surely Pippi would be able to sit quietly and draw, thought the teacher. She took out paper and pens and passed them out to the children.
+
+"You can draw whatever you like," she said, as she sat down at her desk and started correcting home- work. After a while she looked up to see how the drawing was going. All the children were sitting there watching Pippi, who was lying on the floor, drawing to her heart's content.
+
+"Pippi," said the teacher impatiently, "why aren't you drawing on the piece of paper?"
+
+"I filled it up long ago. I couldn't get my horse on that tiny scrap of paper," said Pippi. "Right now I'm drawing his front legs, but when I get to the tail I'll probably have to go out into the hallway."
+
+The teacher thought hard for a moment.
+
+"Why don't we sing a little song instead," she* suggested.
+
+All the children stood up next to their desks all except Pippi, who was still lying on the floor.
+
+"Go ahead and sing," she said. "I'll just rest for a while. All this learning can be too much for even the strongest person."
+
+But now the teacher had lost all patience. She told the other children to go out to the playground, because she wanted to have a private conversation with Pippi.
+
+When the teacher and Pippi were alone, Pippi stood up and went over to the desk.
+
+"You know what?" she said. "I mean. . . er. . . you know what, Ma'am? It was really fun to come here and see what all of you do, but I don't think I feel like coming to school anymore. I'll just have to make do without a Christmas vacation. There are just too many apples and iguanas and snakes and things like that. It makes my head spin. I hope you're not disappointed, Ma'am."
+
+But the teacher said that she did feel disappointed, mainly because Pippi didn't want to try to behave properly, and because a girl who behaved the way Pippi did couldn't be allowed to come to school, no matter how much she might want to.
+
+"Have I behaved badly?" asked Pippi, very sur- prised. "Oh, and I didn't even know it," she said, looking woeful. Nobody could look as woeful as Pippi when she was sad.
+
+She was silent for a moment, and then she said in a quavering voice, "You have to understand, Ma'am, that if a girl's mamma is an angel and her pappa is king of the natives and if she herself has spent her whole life sailing the seas, then she doesn't really know how to behave at school among all these apples and iguanas."
+
+Then the teacher said that she understood and that she wasn't annoyed at Pippi anymore and that perhaps Pippi could come back to school when she was a little older.
+
+And then Pippi, beaming with joy, said, "I think you're awfully nice, Ma'am. And here's something for you!"
+
+From her pocket Pippi took out an elegant little gold watch, which she placed on the desk. The teacher said that she couldn't accept such an expensive gift.
+
+But Pippi said, "You have to! Otherwise I'll come back tomorrow, and then there will really be a commotion."
+
+After that Pippi dashed out to the playground and leaped onto her horse. All the children crowded around her to pat the horse and see her off.
+
+"Give me the schools in Argentina any time," said Pippi, sounding a bit haughty as she looked down at the children. "You should try going there. Easter vacation starts only three days after Christmas vacation ends, and when Easter vacation is over, there are three days until summer vacation starts. Summer vacation ends on the first of November, and then, of course, it's quite a while before Christmas vacation starts on November eleventh. But it's bearable because at least there's no homework. It's strictly forbidden to do homework in Argentina. Sometimes an Argentinean boy might sneak into a cupboard and sit there and secretly do homework, but I feel sorry for him if his mother finds out. They don't have any arithmetic in the schools there. If anyone knows how much seven plus five is, and if he's silly enough to mention it to the teacher, he has to stand in the corner all day long. Reading is something they do only on Fridays, and then only if they have some books to read. But they never do."
+
+"Well, what do they do at school then?" asked a little boy.
+
+"They eat candy," said Pippi firmly. "There's a long pipe that goes from the nearby candy factory straight to the classroom, and candy comes gushing out all day long, so the kids can hardly keep up with eating it."
+
+"But what does the teacher do?" asked a girl.
+
+"She unwraps the candy for the children, silly," said Pippi. "You don't really think they do that themselves, do you? Hardly! And they don't actually go to school themselves either. They send their brothers."
+
+Pippi swung her big hat.
+
+"Bye now, kids," she shouted happily. "You won't be seeing me for a while, but don't ever forget how many apples Axel had or you'll be sorry. Ha ha ha!"
+
+With a resounding laugh, Pippi rode out through the gate, making the gravel fly under the horse's hooves and rattling the windowpanes of the school.
+
+
+
