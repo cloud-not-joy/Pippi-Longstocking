@@ -103,7 +103,7 @@ Pippi had to pause to catch her breath. And the teacher, who was beginning to th
 
 The teacher thought hard for a moment.
 
-"Why don't we sing a little song instead," she* suggested.
+"Why don't we sing a little song instead," she suggested.
 
 All the children stood up next to their desks all except Pippi, who was still lying on the floor.
 
@@ -117,7 +117,7 @@ When the teacher and Pippi were alone, Pippi stood up and went over to the desk.
 
 But the teacher said that she did feel disappointed, mainly because Pippi didn't want to try to behave properly, and because a girl who behaved the way Pippi did couldn't be allowed to come to school, no matter how much she might want to.
 
-"Have I behaved badly?" asked Pippi, very sur- prised. "Oh, and I didn't even know it," she said, looking woeful. Nobody could look as woeful as Pippi when she was sad.
+"Have I behaved badly?" asked Pippi, very surprised. "Oh, and I didn't even know it," she said, looking woeful. Nobody could look as woeful as Pippi when she was sad.
 
 She was silent for a moment, and then she said in a quavering voice, "You have to understand, Ma'am, that if a girl's mamma is an angel and her pappa is king of the natives and if she herself has spent her whole life sailing the seas, then she doesn't really know how to behave at school among all these apples and iguanas."
 
