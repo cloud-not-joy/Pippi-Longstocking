@@ -157,3 +157,11 @@ And Annika had to agree. It wasn't nearly as dark as she had thought, because li
 
 At this thought the children were so happy that they all hugged each other. Then they heard the gong ringing, which meant that Tommy and Annika had to go home to dinner.
 
+"How stupid," said Tommy. "We have to go home now. But we'll come over tomorrow, as soon as we get home from school."
+
+"Do that," said Pippi.
+
+And then they climbed up the ladder—first Pippi, then Annika, and last of all Tommy. And then they climbed down from the tree—first Pippi, then Annika, and last of all Tommy.
+
+
+
