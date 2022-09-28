@@ -60,5 +60,20 @@ In the blink of an eye she finished off all the cakes on her plate. She got up, 
 
 There was a big cream cake on the table. In the middle of it was a piece of red candy as a decoration. Pippi stood with her hands behind her back and looked at it. All of a sudden she leaned forward and snatched up the candy in her teeth. But she had bent down a little too quickly, and when she straightened up, her whole face was covered with cream.
 
+"Ha ha ha," laughed Pippi. "Now we can play blindman's-buff, because we already have a blindfold, and it's absolutely free. I can't see a thing."
 
+Then she stuck out her tongue and licked off all the cream.
 
+"Well, that was really quite an accident," she said. "But now the cake is just going to go to waste, so I might as well eat the whole thing."
+
+And she did. She launched into it with a cake server, and in a matter of minutes the whole cake was gone. Pippi patted her stomach contentedly. Mrs. Settergren had gone out to the kitchen for a moment so she knew nothing about the accident with the cake. But the other ladies were giving Pippi very stern looks. They probably would have liked some of that cake themselves. Pippi noticed that they didn't look pleased, and she decided to cheer them up.
+
+"Let's not be sad about such a small and unfortunate incident," she consoled them. "The main thing is that we have our health. And besides, you're supposed to have fun when you're invited for coffee."
+
+She picked up the sugar bowl and scattered the lumps of sugar all over the floor.
+
+"Oh, what's this?" she cried in a shrill voice. "How1 could I ever make such a mistakel I thought it was granulated sugar, the kind that you're supposed to sprinkle. But now the damage is done. Luckily there's only one thing to do if you happen to sprinkle lumps of sugar by mistake—you have to do the opposite and try to make the granulated sugar into lumps."
+
+With these words she picked up a container of granulated sugar from the table and sprinkled sugar on her tongue, trying hard to shape it into lumps.
+
+"Well, there you see," she said. "If it doesn't work, nothing will."
