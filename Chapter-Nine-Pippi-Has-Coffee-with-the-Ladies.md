@@ -77,3 +77,16 @@ She picked up the sugar bowl and scattered the lumps of sugar all over the floor
 With these words she picked up a container of granulated sugar from the table and sprinkled sugar on her tongue, trying hard to shape it into lumps.
 
 "Well, there you see," she said. "If it doesn't work, nothing will."
+
+Then she took the container of granulated sugar and sprinkled a large amount onto the floor.
+
+"Please note, this is granulated sugar," she said. "So I'm perfectly entitled to do this. Because I'd like to know what good it is to have granulated sugar if you can't use it for sprinkling.
+
+"Have you ever noticed how much fun it is to walk on sugar that's been spilled on the floor?" she asked the ladies. "It's even more fun it you're barefoot," she went on, tearing off her shoes and stockings. "You really should try it yourselves. Nothing feels better. You can take my word for it."
+
+Now Mrs. Settergren came back in from the kitchen. When she saw all the spilled sugar, she grabbed Pippi hard by the arm and led her over to Tommy and Annika, who were sitting on the sofa. Then she went to sit with the ladies, offering them more coffee. The fact that the cake was gone made her happy. She thought that her guests had liked it so much that they had eaten the whole thing.
+
+Pippi, Tommy, and Annika were talking quietly over on the sofa. The fire was crackling in the fireplace. The ladies were having another cup of coffee, and everything was once again nice and peaceful. Then, as sometimes happens when ladies gather for coffee, they started talking about their maids. They didn't seem to have found very good maids, because they weren't the least bit happy with them. They agreed that they really shouldn't have maids at all. It would actually be much better to do everything themselves, because then at least they would know that it was done properly.
+
+Pippi sat on the sofa, listening, and when the ladies - had gone on like this for a while, she said, "My grandmother once had a maid whose name was Malin. She had chilblains on her feet, but otherwise there was nothing wrong with her. The only annoying thing was that as soon as any visitors turned up, she would dash over to them and bite them on the leg. And bark! Oh, how she would bark! You could hear it all over the neighborhood. She was just being playful, but the visitors didn't always understand that. The old wife of a vicar once came to visit Grandma just after Malin had started working there. When Malin came running over and sank her teeth into the old woman's shin, the vicar's wife gave a howl. It scared Malin so badly that she sank her teeth in even deeper. And then she couldn't get loose. She was stuck like that, on the leg of the vicar's wife, until Friday. So Grandma had to peel the potatoes herself that day. But at least it was properly done. She peeled them so well that when she was finished, there were no potatoes left at all. Only peels! After that Friday the vicar's wife never came to see Grandma again. She eally had no sense of humor. And Malin was just being playful and merry! But it can't be denied that once in a while she could also be rather moody. Once when Grandma stuck a fork in Malin's ear, she spent the whole day sulking."
+
