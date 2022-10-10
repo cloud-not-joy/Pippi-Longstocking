@@ -90,3 +90,21 @@ Pippi, Tommy, and Annika were talking quietly over on the sofa. The fire was cra
 
 Pippi sat on the sofa, listening, and when the ladies - had gone on like this for a while, she said, "My grandmother once had a maid whose name was Malin. She had chilblains on her feet, but otherwise there was nothing wrong with her. The only annoying thing was that as soon as any visitors turned up, she would dash over to them and bite them on the leg. And bark! Oh, how she would bark! You could hear it all over the neighborhood. She was just being playful, but the visitors didn't always understand that. The old wife of a vicar once came to visit Grandma just after Malin had started working there. When Malin came running over and sank her teeth into the old woman's shin, the vicar's wife gave a howl. It scared Malin so badly that she sank her teeth in even deeper. And then she couldn't get loose. She was stuck like that, on the leg of the vicar's wife, until Friday. So Grandma had to peel the potatoes herself that day. But at least it was properly done. She peeled them so well that when she was finished, there were no potatoes left at all. Only peels! After that Friday the vicar's wife never came to see Grandma again. She eally had no sense of humor. And Malin was just being playful and merry! But it can't be denied that once in a while she could also be rather moody. Once when Grandma stuck a fork in Malin's ear, she spent the whole day sulking."
 
+Pippi gave everyone a friendly smile.
+
+"Well, that was Malin. Yes, it was," she said as she twiddled her thumbs.
+
+The ladies pretended they hadn't heard a word. They kept on chatting.
+
+"If only my Rosa were at least clean and tidy," said Mrs. Berggren, "then I might be able to keep her on. But she's like a pig."
+
+"Then you should have seen Malin," Pippi piped up. "Grandma said that Malin was so grubby and grimy that it was a sight to behold. For a long time Grandma thought that she actually had dark skin, but it was all just dirt that could be washed right off. One time at a bazaar at the City Hotel, she won first prize for the amount of black grime under her fingernails. Oh yes, goodness gracious, how filthy that girl was," said Pippi merrily.
+
+Mrs. Settergren gave her a stern look.
+
+"Can you believe it?" said Mrs. Granberg. "The other evening, when my Britta was going out, she borrowed my blue silk dress without even asking. Isn't that the height of impudence?"
+
+"It certainly is," said Pippi. "I can hear that she and Malin are two of a kind. Grandma had a pink camisole, and she was terribly fond of it. But the worst thing was that Malin was fond of it too. And every morning Grandma and Malin would fight over who was going to wear that camisole. They finally agreed that they would take turns, in order to be fair. But just think how mean Malin could be! Sometimes she would come running in when it wasn't even her turn and say: 'There won't be any mashed turnips if I don't get to wear that pink woolen camisole!' Well, what was Grandma to do? Mashed turnips were her favorite dish. There was nothing to be done but give Malin that camisole! And once she got it, she would go out to the kitchen, as nice as you please, and start mashing turnips so hard that they splattered all over the walls."
+
+
+
