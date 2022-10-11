@@ -106,5 +106,21 @@ Mrs. Settergren gave her a stern look.
 
 "It certainly is," said Pippi. "I can hear that she and Malin are two of a kind. Grandma had a pink camisole, and she was terribly fond of it. But the worst thing was that Malin was fond of it too. And every morning Grandma and Malin would fight over who was going to wear that camisole. They finally agreed that they would take turns, in order to be fair. But just think how mean Malin could be! Sometimes she would come running in when it wasn't even her turn and say: 'There won't be any mashed turnips if I don't get to wear that pink woolen camisole!' Well, what was Grandma to do? Mashed turnips were her favorite dish. There was nothing to be done but give Malin that camisole! And once she got it, she would go out to the kitchen, as nice as you please, and start mashing turnips so hard that they splattered all over the walls."
 
+For a moment no one spoke.
+
+Then Mrs. Alexandersson said, "I'm not absolutely certain about this, but I have a strong suspicion that my Hulda is stealing. I do know that I've noticed things have been missing."
+
+"Malin..." Pippi began.
+
+But then Mrs. Settergren said firmly, "Children, go up to your room. Right now!"
+
+"Yes, but I was just going to tell you that Malin stole things too," said Pippi. "Just like a magpie! Anything that wasn't nailed down! She used to get up in the middle of the night to steal a few things, because she said that otherwise she couldn't sleep peacefully. Once she swiped Grandma's piano and stuffed it in the top drawer of her own dresser. Grandma said that she had very nimble fingers."
+
+Now Tommy and Annika took Pippi by the arms and started pulling her up the stairs. The ladies were drinking their third cup of coffee, and Mrs. Settergren said, "It's not that I really want to complain about my Ella, but she certainly does break a lot of china."
+
+
+
+
+
 
 
