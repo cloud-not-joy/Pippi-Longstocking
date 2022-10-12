@@ -118,6 +118,11 @@ But then Mrs. Settergren said firmly, "Children, go up to your room. Right now!"
 
 Now Tommy and Annika took Pippi by the arms and started pulling her up the stairs. The ladies were drinking their third cup of coffee, and Mrs. Settergren said, "It's not that I really want to complain about my Ella, but she certainly does break a lot of china."
 
+A red head came into view over the banister.
+
+"Speaking of Malin," said Pippi, "maybe you were wondering whether she used to break any china. Well, you could certainly say that again! She set aside a specific day of the week for breaking china. Grandma told me that it was on Tuesdays. By five in the morning on Tuesday you could already hear that splendid girl smashing china out in the kitchen. She started with the coffee cups and glasses and other smaller items, moved on to the soup plates and then the dinner plates, and ended with the meat platters and soup tureens. Grandma said she was happy to hear such a crashing in the kitchen all morning long. And if Malin had any time left over later in the afternoon, she would go into the sitting room with a little hammer and smash the antique East Indian plates that hung on the walls. Grandma always bought new china on Wednesdays," said Pippi, and she vanished up the
+stairs like a jack-in-the-box.
+
 
 
 
