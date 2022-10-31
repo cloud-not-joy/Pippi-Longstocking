@@ -123,6 +123,33 @@ A red head came into view over the banister.
 "Speaking of Malin," said Pippi, "maybe you were wondering whether she used to break any china. Well, you could certainly say that again! She set aside a specific day of the week for breaking china. Grandma told me that it was on Tuesdays. By five in the morning on Tuesday you could already hear that splendid girl smashing china out in the kitchen. She started with the coffee cups and glasses and other smaller items, moved on to the soup plates and then the dinner plates, and ended with the meat platters and soup tureens. Grandma said she was happy to hear such a crashing in the kitchen all morning long. And if Malin had any time left over later in the afternoon, she would go into the sitting room with a little hammer and smash the antique East Indian plates that hung on the walls. Grandma always bought new china on Wednesdays," said Pippi, and she vanished up the
 stairs like a jack-in-the-box.
 
+By now Mrs. Settergren's patience had come to an end. She ran up the stairs, into the children's room, and over to Pippi, who had just started to teach Tommy how to stand on his head.
+
+"You're not allowed to come here again," said Mrs. Settergren, "not when you behave so badly."
+
+Pippi looked at her in surprise, and slowly her eyes rilled with tears. "It's just like I thought," she said. "I knew I wouldn't be able to behave myself! It's not even worth trying—I'm never going to learn how anyway. I should have stayed at sea."
+
+Then she curtsied to Mrs. Settergren, said good-bye to Tommy and Annika, and slowly went downstairs.
+
+But now it was also time for the ladies to go home. Pippi sat down on the boot rack in the hall and watched as they put on their coats and hats.
+
+"It's a shame that you don't like your maids," she said. "You should have someone like Malin! Grandma always said that you couldn't find a more wonderful maid. Just think, one Christmas when Malin was supposed to serve a roast pig—do you know what she did? She had read in the cookbook that a Christmas pig should be served with paper frills on the ears and an apple in the mouth. And poor Malin didn't realize that it was the pig that was supposed to have the* apple. You should have seen her when she came in on Christmas Eve, wearing her starched apron and with a big apple in her mouth. Grandma said to her, 'What a fool you are, Malin!' And of course Malin couldn't utter a word in her own defense. All she could do was wiggle her ears so the paper frills rustled. She did try to say something, but it just came out as 'Blub, blub, blub.' And she couldn't bite anyone on the leg, the way she usually did, even though there were so many visitors present that day. No, it wasn't a very pleasant Christmas Eve for poor little Malin," said Pippi sadly.
+
+The ladies now had their coats on, and they were saying a last good-bye to Mrs. Settergren.
+
+Pippi ran over to her and whispered, "I'm sorry that I couldn't behave myself! Good-bye!"
+
+Then she slapped her big hat on her head and followed the ladies out the door. But outside the gate they went their separate ways. Pippi headed for Villa Villekulla, and the ladies headed in the opposite direction.
+
+After they had walked a short distance, they heard someone huffing and puffing behind them. It was Pippi, who had come dashing after them.
+
+"Believe me, Grandma was sad when she lost Malin. Just think, one Tuesday morning when Malin hadn't even managed to smash more than a dozen teacups, she just took off and ran away to sea. So Grandma had to break all the china herself that day. And she wasn't used to it, the poor thing, so she got blisters all over her hands. She never saw Malin again. And Grandma said that was a shame, because she was such a marvelous maid."
+
+Then Pippi left, and the ladies hurried on their way. But after they had gone a couple of hundred feet, they heard Pippi shouting in the distance at the top of her lungs:
+
+"SHE NEVER SWEPT UNDER THE BEDS, THAT MALIN!"
+
+
 
 
 
