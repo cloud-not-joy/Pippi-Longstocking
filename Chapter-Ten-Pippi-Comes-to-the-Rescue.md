@@ -78,12 +78,22 @@ She ran across the plank and jumped in through the window.
 
 Then she picked up a boy in each arm and climbed back out onto the plank.
 
+"Now you're finally going to have some fun," she said. "This is almost like walking a tightrope."
+
+And when she reached the middle of the plank she lifted one leg in the air, exactly as she had done ine the circus. A second later, when Pippi dropped one of her shoes, several elderly women fainted. But Pippi safely reached the tree with the boys, and then all the people down in the square gave a cheer that thundered through the dark evening and drowned out the roar of the fire.
+
+Pippi hauled up the rope and fastened one end tightly to a branch. After that she tied the other end around one of the boys and slowly and cautiously lowered him down to his overjoyed mother, who was
+waiting in the square below.
+
+She instantly threw her arms around her son and hugged him with tears in her eyes. But Pippi shouted, "Hey, untie the rope! There's another boy up here, and he can't fly either."
+
+So everyone helped untie the knot to set the first boy free. Pippi was certainly good at tying proper knots! That was something she had learned at sea. Then she hauled the rope back up, and it was the other boy's turn to be lowered down.
+
+Now Pippi was alone up in the tree. She jumped onto the plank, and everyone looked up at her, wondering what she was planning to do next. Pippi danced back and forth on the narrow board. She raised and lowered her arms beautifully and began to sing in a hoarse voice. The people standing below in the square could barely hear the words:
 
 
-
-
-
-
+A FiRE is buRning, it's buRning bo hot, it's buRning in ciRcLES sd bRight.
+It's buRning FoR YOU, it's buRning FoR ME, it's buRning FoR thoSE who dANCE in thE night!,
 
 
 
