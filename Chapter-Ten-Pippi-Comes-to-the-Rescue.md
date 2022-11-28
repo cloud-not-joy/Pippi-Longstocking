@@ -95,7 +95,15 @@ Now Pippi was alone up in the tree. She jumped onto the plank, and everyone look
 A FiRE is buRning, it's buRning bo hot, it's buRning in ciRcLES sd bRight.
 It's buRning FoR YOU, it's buRning FoR ME, it's buRning FoR thoSE who dANCE in thE night!,
 
+And as she sang, her dancing got wilder and wilder* and many of the people in the square shut their eyes in fright because they thought she was going to fall and be killed. Huge flames were shooting out of the attic window, and in the glow of the fire the crowd could see Pippi quite clearly. She raised her arms toward the evening sky, and as a shower of sparks fell over her, she shouted loudly, "What a fun fire this is! How fun, how fun!"
 
+Then she leaped for the rope.
+
+"Here I come!" she shouted, and then she lowered herself to the ground with the speed of greased lightning.
+
+"Three cheers for Pippi Longstocking! Long may she live!" shouted the fire chief.
+
+"Hurrah! Hurrah! Hurrah!" cried all the people. But one person gave four cheers instead of three. And that was Pippi.
 
 
 
